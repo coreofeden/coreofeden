@@ -5,6 +5,6 @@ my main interests right now are Valve games. Call of Duty, Golden Kamuy + other 
  -   I REALLY LOVE SOLDIER TF2             
 
                      BYI + DNI
-    i dont stand for racism, homophobia, nazis and just genuine weirdos 
+i dont stand for racism, homophobia, nazis and just genuine weirdos 
    
 
