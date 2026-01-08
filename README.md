@@ -1,10 +1,1 @@
-
-**Hi** <__< i go by the name Jae literally everywhere so thats what u can call me  
-
-my main interests right now are Valve games. Call of Duty, Golden Kamuy + other animanga
-   - I REALLY LOVE SOLDIER TF2             
-
-     <h6> BYI + DNI
-**i dont stand for racism, homophobia, nazis and just genuine weirdos** 
-   
-
+![](https://images-ext-1.discordapp.net/external/WKcX1WPIo5GLOID9bvOkt08DDtYFFyycNzgN3u6x9nU/https/media.tenor.com/H-KMq4diQYMAAAPo/nikolai-nikolai-belinski.mp4)
